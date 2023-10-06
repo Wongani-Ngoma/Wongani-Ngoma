@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Wongani-Ngoma
+- 👀 I’m interested in most domains in computers science, esp software development 
+- 🌱 I,m no expert, trying to learn
+- 📫 e-mail: wonganingoma2@gmail.com
